@@ -6,4 +6,5 @@
 - 🪗 Utilizo este espaço para organização e compartilhamento dos meus projetos
 
 ### Para me contatar: 
-📬 00001124067371sp@aluno.educacao.sp.gov.br 
+📬   sandrabonin8@gmail.com 
+
